@@ -1,1 +1,0 @@
-# guayaquil_srandaimagen03riwdvr
